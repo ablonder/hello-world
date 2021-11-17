@@ -9,3 +9,8 @@ YOUR NAME HERE: Aviva
 1. I had a pet cat growing up
 2. I write fiction in my spare time
 3. I want to move to a city
+
+Kirsten:
+1. I was burned in a terrible picle accident
+2. I was hit by a taco truck (and got a free taco)
+3. As a child, my uncle would give me liver pate for christmas
